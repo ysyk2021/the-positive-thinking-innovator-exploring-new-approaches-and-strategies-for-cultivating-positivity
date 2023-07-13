@@ -1,4 +1,4 @@
-Chapter 4: Innovative Approaches to Positive Thinking: Gratitude Practices for a Positive Mindset
+Gratitude Practices for a Positive Mindset
 =================================================================================================
 
 In this chapter, we'll explore innovative approaches to positive thinking, specifically gratitude practices. These approaches can help us develop a more positive mindset and improve our mental health and well-being.

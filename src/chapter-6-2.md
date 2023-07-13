@@ -1,4 +1,4 @@
-Chapter 6: Applying Positive Thinking in Different Areas of Life: Positive Thinking in Relationships
+Positive Thinking in Relationships
 ====================================================================================================
 
 In this chapter, we'll explore how positive thinking can be applied to relationships and the benefits it can have on our mental and physical well-being.

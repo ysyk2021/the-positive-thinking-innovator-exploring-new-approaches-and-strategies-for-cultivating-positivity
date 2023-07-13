@@ -1,4 +1,4 @@
-Chapter 6: Applying Positive Thinking in Different Areas of Life: Positive Thinking in the Workplace
+Positive Thinking in the Workplace
 ====================================================================================================
 
 In this chapter, we'll explore how positive thinking can be applied in the workplace and the benefits it can have on our mental and physical well-being.

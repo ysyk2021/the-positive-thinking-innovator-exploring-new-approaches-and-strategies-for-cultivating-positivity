@@ -1,4 +1,4 @@
-Chapter 7: The Future of Positive Thinking: Emerging Trends and Innovations in Positive Psychology
+Emerging Trends and Innovations in Positive Psychology
 ==================================================================================================
 
 In this chapter, we'll explore emerging trends and innovations in positive psychology and the future of positive thinking.

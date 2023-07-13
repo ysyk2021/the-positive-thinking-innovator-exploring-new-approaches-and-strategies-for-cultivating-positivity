@@ -1,4 +1,4 @@
-Chapter 1: Introduction: The Power of Positive Thinking
+The Power of Positive Thinking
 =======================================================
 
 In this chapter, we'll explore the power of positive thinking and its potential to improve our mental and physical well-being.

@@ -1,4 +1,4 @@
-Chapter 2: The Science of Positivity: The Physiology of Positive Thinking
+The Physiology of Positive Thinking
 =========================================================================
 
 In this chapter, we'll explore the physiological effects of positive thinking on our body and overall health.

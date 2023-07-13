@@ -1,4 +1,4 @@
-Chapter 7: The Future of Positive Thinking: Promising Research on Positive Thinking
+Promising Research on Positive Thinking
 ===================================================================================
 
 In this chapter, we'll explore some promising research on positive thinking and its potential impact on our mental and physical well-being.

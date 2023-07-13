@@ -1,4 +1,4 @@
-Chapter 5: Strategies for Cultivating Positivity: Creating Habits and Routines for Positive Thinking
+Creating Habits and Routines for Positive Thinking
 ====================================================================================================
 
 In this chapter, we'll explore strategies for creating habits and routines that promote positive thinking in our daily lives.

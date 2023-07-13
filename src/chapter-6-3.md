@@ -1,4 +1,4 @@
-Chapter 6: Applying Positive Thinking in Different Areas of Life: Positive Thinking for Personal Growth
+Positive Thinking for Personal Growth
 =======================================================================================================
 
 In this chapter, we'll explore how to apply positive thinking strategies to different areas of our lives in order to promote personal growth and development.

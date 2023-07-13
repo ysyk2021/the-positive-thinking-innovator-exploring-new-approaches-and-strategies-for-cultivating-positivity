@@ -1,4 +1,4 @@
-Chapter 3: Barriers to Positive Thinking: Identifying Negative Thought Patterns
+Identifying Negative Thought Patterns
 ===============================================================================
 
 In this chapter, we'll explore negative thought patterns that can be a major barrier to cultivating positivity and strategies for identifying and overcoming them.

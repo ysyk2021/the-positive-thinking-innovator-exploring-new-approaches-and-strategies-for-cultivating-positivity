@@ -1,4 +1,4 @@
-Chapter 8: Conclusion: The Benefits of a Positive Mindset
+The Benefits of a Positive Mindset
 =========================================================
 
 In this book, we've explored the power of positive thinking and the various approaches and strategies for cultivating positivity in our lives. As we conclude this book, it's important to emphasize the many benefits of a positive mindset.

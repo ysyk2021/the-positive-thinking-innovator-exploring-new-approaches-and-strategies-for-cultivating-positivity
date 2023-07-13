@@ -1,4 +1,4 @@
-Chapter 2: The Science of Positivity: The Psychology of Positive Thinking
+The Psychology of Positive Thinking
 =========================================================================
 
 In this chapter, we'll explore the psychology behind positive thinking and how it can benefit our mental health and well-being.

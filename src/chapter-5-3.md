@@ -1,4 +1,4 @@
-Chapter 5: Strategies for Cultivating Positivity: Nurturing Positive Relationships
+Nurturing Positive Relationships
 ==================================================================================
 
 In this chapter, we'll explore the importance of positive relationships in cultivating positivity, and strategies for building and maintaining these relationships.

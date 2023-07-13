@@ -1,4 +1,4 @@
-Chapter 4: Innovative Approaches to Positive Thinking: Cognitive Restructuring and Reframing
+Cognitive Restructuring and Reframing
 ============================================================================================
 
 In this chapter, we'll explore innovative approaches to positive thinking, including cognitive restructuring and reframing. These approaches can help us develop a more positive mindset and improve our mental health and well-being.

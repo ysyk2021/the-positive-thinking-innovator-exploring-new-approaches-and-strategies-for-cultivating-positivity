@@ -1,4 +1,4 @@
-Chapter 3: Barriers to Positive Thinking: Overcoming Self-Doubt and Fear
+Overcoming Self-Doubt and Fear
 ========================================================================
 
 In this chapter, we'll explore self-doubt and fear as barriers to positive thinking and strategies for overcoming them.

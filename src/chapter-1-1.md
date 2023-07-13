@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Defining Positivity and its Importance
+Defining Positivity and its Importance
 ===============================================================
 
 In this chapter, we'll explore the meaning and importance of positivity in our lives.

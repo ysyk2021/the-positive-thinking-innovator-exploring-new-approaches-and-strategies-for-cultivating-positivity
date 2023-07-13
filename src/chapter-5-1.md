@@ -1,4 +1,4 @@
-Chapter 5: Strategies for Cultivating Positivity: Developing Resilience and Emotional Intelligence
+Developing Resilience and Emotional Intelligence
 ==================================================================================================
 
 In this chapter, we'll explore strategies for developing resilience and emotional intelligence, two key components of cultivating positivity in our lives.

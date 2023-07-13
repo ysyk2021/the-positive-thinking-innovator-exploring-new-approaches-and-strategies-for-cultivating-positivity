@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Defining Positivity and its Importance](chapter-1-1.md)
   - [The Power of Positive Thinking](chapter-1-2.md)
   - [The Need for Innovation in Positive Thinking](chapter-1-3.md)
@@ -29,9 +28,5 @@
   - [Emerging Trends and Innovations in Positive Psychology](chapter-7-1.md)
   - [Promising Research on Positive Thinking](chapter-7-2.md)
   - [The Role of Positive Thinking in Shaping Our Future](chapter-7-3.md)
-- [Chapter 8: Conclusion](chapter-8.md)
-  - [The Benefits of a Positive Mindset](chapter-8-1.md)
-  - [The Importance of Ongoing Practice and Innovation](chapter-8-2.md)
-  - [Final Thoughts and Recommendations](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

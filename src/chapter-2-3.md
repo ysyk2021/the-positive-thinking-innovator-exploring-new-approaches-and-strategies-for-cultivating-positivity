@@ -1,4 +1,4 @@
-Chapter 2: The Science of Positivity: The Neuroscience of Positive Thinking
+The Neuroscience of Positive Thinking
 ===========================================================================
 
 In this chapter, we'll explore the science behind positivity and how it affects our brain and overall well-being.

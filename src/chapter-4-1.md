@@ -1,4 +1,4 @@
-Chapter 4: Innovative Approaches to Positive Thinking: Mindfulness-Based Techniques for Positivity
+Mindfulness-Based Techniques for Positivity
 ==================================================================================================
 
 In this chapter, we will explore mindfulness-based techniques for cultivating positivity. These innovative approaches can help us develop a more positive mindset and improve our overall well-being.

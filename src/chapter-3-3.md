@@ -1,4 +1,4 @@
-Chapter 3: Barriers to Positive Thinking: Dealing with External Factors that Affect Positivity
+Dealing with External Factors that Affect Positivity
 ==============================================================================================
 
 In this chapter, we'll explore external factors that can affect our ability to cultivate positivity and strategies for overcoming these barriers.
