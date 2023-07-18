@@ -10,7 +10,6 @@ This book is suitable for anyone who wants to improve their self-esteem, increas
 
 With "The Positive Thinking Innovator," readers will learn how to transform their mindset, embrace positivity, and unlock their full potential. Whether you're looking to improve your personal relationships, enhance your career prospects, or simply live a happier, more fulfilling life, this book is an essential guide to cultivating positivity and achieving your goals.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
