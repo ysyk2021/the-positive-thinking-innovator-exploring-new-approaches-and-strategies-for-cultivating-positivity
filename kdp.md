@@ -14,8 +14,6 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 
 
 
-Sure, here are 20 Amazon search keywords related to "The Positive Thinking Innovator: Exploring New Approaches and Strategies for Cultivating Positivity":
-
 1. Positive thinking
 2. Self-improvement
 3. Mindset shift
