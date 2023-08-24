@@ -1,5 +1,3 @@
-Chapter 6: Applying Positive Thinking in Different Areas of Life
-================================================================
 
 In this chapter, we'll explore how positive thinking can be applied in different areas of life, including the workplace, relationships, and personal growth.
 

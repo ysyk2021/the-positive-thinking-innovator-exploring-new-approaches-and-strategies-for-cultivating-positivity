@@ -1,5 +1,3 @@
-Positive Thinking in the Workplace
-=============================================
 
 In this chapter, we will explore the significance of positive thinking in the workplace and how it can contribute to creating a thriving and productive work environment. Positive thinking plays a crucial role in enhancing employee well-being, fostering teamwork, boosting creativity and innovation, and ultimately driving organizational success. We will discuss various strategies and approaches for cultivating positive thinking in the workplace and reaping its benefits.
 

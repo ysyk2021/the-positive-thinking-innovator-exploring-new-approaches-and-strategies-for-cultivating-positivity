@@ -1,5 +1,3 @@
-Gratitude Practices for a Positive Mindset
-=====================================================
 
 In this chapter, we will delve into the importance of gratitude in cultivating a positive mindset and explore various gratitude practices that can be incorporated into daily life. Gratitude is a powerful tool that can transform our perspective, increase happiness, and improve overall well-being. By adopting gratitude practices, individuals can shift their focus towards the positive aspects of life, leading to increased positivity, resilience, and satisfaction. Let's explore some effective gratitude practices that can help cultivate a positive mindset.
 

@@ -1,5 +1,3 @@
-Chapter 2: The Science of Positivity
-====================================
 
 In this chapter, we'll explore the science behind positivity and how it affects our mental and physical well-being.
 

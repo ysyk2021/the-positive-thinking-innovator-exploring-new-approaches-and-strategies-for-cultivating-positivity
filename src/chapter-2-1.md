@@ -1,5 +1,3 @@
-The Psychology of Positive Thinking
-==============================================
 
 In this chapter, we will dive into the fascinating field of positive psychology and explore the psychology behind positive thinking. Positive thinking is more than just a mindset; it is a powerful tool that can shape our emotions, behaviors, and overall well-being. By understanding the psychological mechanisms at play, we can harness the full potential of positive thinking to enhance our lives. Let's delve into the key concepts and theories of positive psychology.
 

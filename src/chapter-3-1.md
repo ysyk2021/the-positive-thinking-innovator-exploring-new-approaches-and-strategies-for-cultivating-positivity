@@ -1,5 +1,3 @@
-Identifying Negative Thought Patterns
-================================================
 
 Negative thought patterns can significantly impact our well-being, relationships, and overall success in life. In this chapter, we will explore strategies for identifying and challenging negative thought patterns. By becoming aware of these patterns, we can take proactive steps to cultivate a more positive and empowering mindset.
 

@@ -1,5 +1,3 @@
-Cognitive Restructuring and Reframing
-================================================
 
 In this chapter, we will explore the concepts of cognitive restructuring and reframing as powerful techniques for cultivating positivity and resilience. Our thoughts greatly influence our emotions and behaviors, and by practicing cognitive restructuring and reframing, we can reframe negative or unhelpful thoughts into more positive and productive ones. These techniques allow us to change our perspective, challenge limiting beliefs, and create a mindset that supports positivity and personal growth. Let's delve into the strategies and approaches for cognitive restructuring and reframing.
 

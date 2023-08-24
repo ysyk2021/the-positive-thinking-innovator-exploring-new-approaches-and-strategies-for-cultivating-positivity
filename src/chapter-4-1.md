@@ -1,5 +1,3 @@
-Mindfulness-Based Techniques for Positivity
-======================================================
 
 In this chapter, we will explore mindfulness-based techniques for cultivating positivity. Mindfulness is the practice of being fully present and aware in the current moment. By incorporating mindfulness into our lives, we can enhance our ability to focus, reduce stress, and cultivate a positive mindset. We will discuss various approaches and strategies for integrating mindfulness into our daily routines to promote positivity and overall well-being.
 

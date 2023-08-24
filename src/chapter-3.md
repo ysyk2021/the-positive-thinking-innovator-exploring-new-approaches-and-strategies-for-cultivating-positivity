@@ -1,5 +1,3 @@
-Chapter 3: Barriers to Positive Thinking
-========================================
 
 In this chapter, we'll explore barriers to positive thinking and strategies for overcoming them. These barriers can include negative thought patterns, self-doubt and fear, and external factors that affect positivity.
 

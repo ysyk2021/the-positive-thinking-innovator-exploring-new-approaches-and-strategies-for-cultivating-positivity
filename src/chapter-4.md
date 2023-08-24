@@ -1,5 +1,3 @@
-Chapter 4: Innovative Approaches to Positive Thinking
-=====================================================
 
 In this chapter, we'll explore innovative approaches to positive thinking that can help us develop a more positive mindset and improve our mental health and well-being.
 

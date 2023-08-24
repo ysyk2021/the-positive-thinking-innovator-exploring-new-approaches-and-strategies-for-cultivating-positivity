@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we'll explore the meaning and importance of positivity in our lives. We'll also discuss the power of positive thinking and the need for innovation in positive thinking strategies.
 

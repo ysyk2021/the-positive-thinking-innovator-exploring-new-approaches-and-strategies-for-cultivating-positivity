@@ -1,5 +1,3 @@
-The Power of Positive Thinking
-=========================================
 
 Positive thinking is a transformative mindset that has the power to change our lives for the better. In this chapter, we will explore the principles and benefits of positive thinking, as well as practical strategies for cultivating a positive mindset.
 

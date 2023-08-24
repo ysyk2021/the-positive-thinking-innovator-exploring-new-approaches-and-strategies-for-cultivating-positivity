@@ -1,5 +1,3 @@
-Chapter 7: The Future of Positive Thinking
-==========================================
 
 In this chapter, we'll explore the future of positive thinking and its potential impact on our lives.
 

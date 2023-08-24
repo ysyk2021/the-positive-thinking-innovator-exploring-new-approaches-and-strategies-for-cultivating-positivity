@@ -1,5 +1,3 @@
-Overcoming Self-Doubt and Fear
-=========================================
 
 Self-doubt and fear can be significant obstacles on the path to cultivating positivity and personal growth. In this chapter, we will explore various approaches and strategies for overcoming self-doubt and fear, allowing you to embrace a more positive mindset.
 

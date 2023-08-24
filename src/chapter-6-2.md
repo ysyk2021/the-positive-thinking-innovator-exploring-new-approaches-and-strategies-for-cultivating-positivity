@@ -1,5 +1,3 @@
-Positive Thinking in Relationships
-=============================================
 
 In this chapter, we will explore the power of positive thinking in relationships. Cultivating positivity within relationships can lead to stronger bonds, enhanced communication, and overall happiness for both individuals involved. We will discuss various approaches and strategies for fostering positivity in relationships and how it can contribute to personal growth and fulfillment.
 

@@ -1,5 +1,3 @@
-The Physiology of Positive Thinking
-==============================================
 
 In this chapter, we will explore the physiological aspects and mechanisms behind positive thinking. Understanding the physiological effects of positive thinking can provide valuable insights into how it impacts our overall well-being and offers new strategies for cultivating positivity. Let's delve into the fascinating world of the physiology of positive thinking.
 

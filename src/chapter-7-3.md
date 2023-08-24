@@ -1,5 +1,3 @@
-The Role of Positive Thinking in Shaping Our Future
-==============================================================
 
 Positive thinking is not just a mindset but also a powerful tool that can shape our future. This chapter explores how adopting positive thinking approaches and strategies can influence various aspects of our lives and pave the way for a brighter and more fulfilling future.
 

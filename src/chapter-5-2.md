@@ -1,5 +1,3 @@
-Creating Habits and Routines for Positive Thinking
-=============================================================
 
 Developing positive thinking habits and incorporating them into our daily routines can have a profound impact on our overall well-being and happiness. In this chapter, we will explore effective approaches and strategies for cultivating positive thinking through the creation of habits and routines.
 
